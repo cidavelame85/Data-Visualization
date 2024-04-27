@@ -25,4 +25,9 @@
 ## 🟨 Power BI
 ![ texto](https://ondemand4u.com/wp-content/uploads/2018/09/power-bi-kopie.jpg)
 
-😍 Espero que gostem das análises e estou a disposição para discutir.
+### 👀  Espero que gostem das análises e estou a disposição para discutir.
+
+
+<img  height="800" width="1000" src="https://th.bing.com/th/id/OIG4.u7WxoDE91hoNi4Z7auYA?pid=ImgGn" alt="grafico de barras">
+
+## 🤝 __Obrigada__
