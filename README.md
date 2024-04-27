@@ -3,4 +3,3 @@
 ## As ferramentas que estou trabalhando atualmente são 4: 
 ##  IBM Cognos Analytics 12 | Tableau | Qlik Sense | Power BI. 
 
-![Logo do Markdown](logo cognos ibm.jpg )
